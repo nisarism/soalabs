@@ -1,0 +1,6 @@
+![http://soalabs.googlecode.com/files/CustomXPathFunctions_Page_1.png](http://soalabs.googlecode.com/files/CustomXPathFunctions_Page_1.png)
+![http://soalabs.googlecode.com/files/CustomXPathFunctions_Page_2.png](http://soalabs.googlecode.com/files/CustomXPathFunctions_Page_2.png)
+![http://soalabs.googlecode.com/files/CustomXPathFunctions_Page_3.png](http://soalabs.googlecode.com/files/CustomXPathFunctions_Page_3.png)
+![http://soalabs.googlecode.com/files/CustomXPathFunctions_Page_4.png](http://soalabs.googlecode.com/files/CustomXPathFunctions_Page_4.png)
+![http://soalabs.googlecode.com/files/CustomXPathFunctions_Page_5.png](http://soalabs.googlecode.com/files/CustomXPathFunctions_Page_5.png)
+![http://soalabs.googlecode.com/files/CustomXPathFunctions_Page_6.png](http://soalabs.googlecode.com/files/CustomXPathFunctions_Page_6.png)
